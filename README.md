@@ -115,12 +115,10 @@ La universidad no solo transmite conocimientos, sino que también forma ciudadan
 
 ---
 
-## 🌟 9. Mensaje final (Slogan)
+## 🌟 9. Mensaje final 
 
 ✨ **“Universidad verde, futuro sostenible: cuida los recursos naturales, protege tu vida y la de las próximas generaciones.”** ✨
 
 ---
 
-Diego, con esta versión tienes un **trabajo largo, profundo, con ejemplos, consecuencias, propuestas y enfoque universitario**. 🔥
 
-¿Quieres que te lo organice también en **formato tipo ensayo académico (con introducción, desarrollo y conclusión, estilo universitario)** para que se vea más formal, o lo dejamos en **versión página web**?
